@@ -1,1 +1,1 @@
-### Bonjour tous le monde 👋
+### Bonjour tout le monde 👋
